@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Vikas Viradiya
+- 👀 I’m interested in Web Design and 3d Art
+- 🌱 I’m currently learning 3d Art and creation
+- 💞️ I’m looking to collaborate on web design using Figma, Adobe XD, Illustrator, Blender, Photoshop 
+- 📫 Reach me on Email vikasviradiya2296@gmail.com
